@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @heni2021
-- 👀 I’m interested in Data Science.
+- 👀 I’m interested in exploring everything under the sky.
 - 🌱 I’m currently learning Computer Science and Engineering
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me ...
